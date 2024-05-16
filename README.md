@@ -1,4 +1,4 @@
-This campaign was made to increase alumni engagement throughout Chapman Unviersity with a focus on networking and create job/internship opportunities. 
+This campaign was made to increase alumni engagement throughout Chapman University with a focus on networking & creating job/internship opportunities. 
 
 File Description:
 
