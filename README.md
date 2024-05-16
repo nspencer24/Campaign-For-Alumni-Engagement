@@ -1,8 +1,10 @@
-This campaign was made with the purpose of increasing alumni engagement throughout Chapman Unviersity with a focus on networking and creating job/internship oppurtunities. 
+This campaign was made to increase alumni engagement throughout Chapman Unviersity with a focus on networking and create job/internship opportunities. 
 
 File Description:
 
-Alumni Engagement.pdf: Campaign advertisements & maketing strategies/posters
+Alumni Engagement.pdf: Campaign advertisements & marketing strategies/posters
+
 Career Advancements Greek ...: Campaign Proposal
+
 Impact Project Proposal Pre...: Campaign Offical & Final Presentation
 
